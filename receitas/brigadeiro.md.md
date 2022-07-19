@@ -1,0 +1,20 @@
+# Brigadeiro :chocolate_bar:
+
+### INGREDIENTES
+ - 1 caixa de leite condensado
+ - 1 colher (sopa) de margarina sem sal
+ - 7 colheres (sopa) de achocolatado
+chocolate granulado
+
+**PREPARO:**
+25 MIN
+
+**RENDIMENTO:**
+30 PORÇÕES
+
+**MODO DE PREPARO**
+1. Em uma panela funda, acrescente o leite condensado, a margarina e o achocolatado (ou 4 colheres de sopa de chocolate em pó).
+
+2. Cozinhe em fogo médio e mexa até que o brigadeiro comece a desgrudar da panela.
+
+3. Deixe esfriar e faça pequenas bolas com a mão passando a massa no chocolate granulado.
